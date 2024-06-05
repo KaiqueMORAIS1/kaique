@@ -9,4 +9,5 @@ Meu nome e Kaique
 ### Voce entra em contato comigo📧
 
  costakaiquemorais@gmail.com
- ![](https://tenor.com/pt-BR/view/você-é-um-amigo-obrigado-gif-21709078)
+
+ ![](https://media1.tenor.com/m/KLjY39uV-poAAAAd/voc%C3%AA-%C3%A9.gif)
